@@ -1,4 +1,5 @@
 # io7
 
-Uploading iot201-JUNGWOOKHYUN_io7.mp4…
+
+https://user-images.githubusercontent.com/128010324/228736239-9ef656aa-fae9-41fd-9248-c67ba579889d.mp4
 
